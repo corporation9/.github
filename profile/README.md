@@ -1,6 +1,6 @@
 ## Hi there, we are Corporation-9 👩‍💻 
 
-Corporation 9 provides a full range of service in advanced technology sectors.
+Corporation 9 provides a full range of services in advanced technology sectors.
 
 The world is changing faster than ever before, business is no exception. Industries are threatened as technology disrupts and software “eats the world.” Those that embrace change are thriving, building bigger, better, faster, and stronger products than ever before.
 <!--
