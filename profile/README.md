@@ -1,3 +1,4 @@
+![Corporation 9](https://corporation9.com/assets/images/sliders/2.jpg)
 ## Hi there, we are Corporation-9 👩‍💻 
 
 Corporation 9 provides a full range of services in advanced technology sectors.
