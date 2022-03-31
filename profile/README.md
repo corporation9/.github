@@ -1,5 +1,5 @@
 ## Hi there, we are Corporation-9 👩‍💻 
-![Corporation 9](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Flocktonmarketupdateblog.com%2Fwp-content%2Fuploads%2Fsites%2F7%2F2015%2F11%2FCyber-Security-Banner_1024x288.jpg&f=1&nofb=1)
+![Corporation 9](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fwww.cherubavailabilityservices.com%2Fwp-content%2Fuploads%2F2018%2F12%2Fcyber-reasoning-banner-1.jpg)
 
 Corporation 9 provides a full range of services in advanced technology sectors.
 
