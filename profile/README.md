@@ -1,4 +1,4 @@
-## Hi there, we are Corporation-9 👩‍💻 
+## Hi there, we are Corp9 👩‍💻 
 ![Corporation 9](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fwww.cherubavailabilityservices.com%2Fwp-content%2Fuploads%2F2018%2F12%2Fcyber-reasoning-banner-1.jpg)
 
 At Corporation 9, we get it. The world is changing and business is changing with it. Corporations are being forced to change the way they do everything, from how they operate to how they engage with customers. Those ahead of the curve are seeing the benefits of being in tune with what’s happening and adapting their products and services accordingly. Those that are lagging behind are struggling to catch up, and may not make it at all.
