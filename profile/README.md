@@ -1,9 +1,11 @@
 ## Hi there, we are Corporation-9 👩‍💻 
 ![Corporation 9](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fwww.cherubavailabilityservices.com%2Fwp-content%2Fuploads%2F2018%2F12%2Fcyber-reasoning-banner-1.jpg)
 
-Corporation 9 provides a full range of services in advanced technology sectors.
+At Corporation 9, we get it. The world is changing and business is changing with it. Corporations are being forced to change the way they do everything, from how they operate to how they engage with customers. Those ahead of the curve are seeing the benefits of being in tune with what’s happening and adapting their products and services accordingly. Those that are lagging behind are struggling to catch up, and may not make it at all.
 
-The world is changing faster than ever before, business is no exception. Industries are threatened as technology disrupts and software “eats the world.” Those that embrace change are thriving, building bigger, better, faster, and stronger products than ever before.
+Corporation 9 provides a full range of services in advanced technology sectors. Our mission is to help businesses succeed by developing technical strategies that achieve their business objectives and provide a competitive advantage. Our team consists of experienced business consultants and senior technology experts who can work as your in-house technical director or project leader. Think beyond the obvious, execute fast, fail well.
+
+
 <!--
 
 **Here are some ideas to get you started:**
